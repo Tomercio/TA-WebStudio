@@ -31,5 +31,6 @@ Feel free to reach out to me for any inquiries, collaborations, or job opportuni
 LinkedIn: Tomer Amitai
 GitHub: Tomercio
 Email: amitayy4@gmail.com
+
 Thank you for visiting my portfolio. I look forward to connecting with you!
 
